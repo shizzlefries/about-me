@@ -1,2 +1,2 @@
 # about-me
-My AP CS final project- a website about myself
+My AP CS final project- creating a website about myself
