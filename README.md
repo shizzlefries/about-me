@@ -20,4 +20,4 @@
 
 >Participated on the school basketball team in 8th and 9th grade
 
->Code Club's leader of Girls Who Code 
+>Code Club's leader of Girls Who Code in 11th grade
