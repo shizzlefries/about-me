@@ -4,12 +4,12 @@
 - Birthday: June 15th, 2004
 - School: East Brunswick High School
 
-## **Social Media Links**
+## **Social Media Links:**
 - [Instagram](https://www.instagram.com/sheza.36/)
 - [Facebook](https://www.facebook.com/sheza.bajwa.31/)
 - [Spotify](https://open.spotify.com/user/sheza.bajwa?si=b9e0b2a4de2f474b)
 
-## **Notable Moments**
+## **Notable Moments:**
 >Recieved third place in javelin on Track and Field day in 7th grade
 
 >Discovered two asteroids in Asteroid CLub in 8th grade
