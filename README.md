@@ -12,12 +12,10 @@
 - [Spotify](https://open.spotify.com/user/sheza.bajwa?si=b9e0b2a4de2f474b)
 
 ## **Notable Moments:**
->Recieved third place in javelin on Track and Field day in 7th grade
+>Recieved third place in javelin on Track and Field day
 
->Discovered two asteroids in Asteroid CLub in 8th grade
+>Discovered two asteroids in Asteroid CLub
 
->Represented my school at the Greater Middlesex Conference's (GMC) annual competition for discus in 9th grade for track and field
-
->Participated on the school basketball team in 8th and 9th grade
+>Represented my school at the Greater Middlesex Conference's (GMC) annual competition for discus in 8th grade for track and field
 
 >Code Club's leader of Girls Who Code in 11th grade
