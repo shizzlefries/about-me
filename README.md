@@ -1,5 +1,3 @@
-# About Me
----
 ## **Basic Information:**
 - Name: Sheza Bajwa
 - Age: 16
