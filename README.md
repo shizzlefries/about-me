@@ -1,8 +1,9 @@
 ## **Basic Information:**
 - Name: Sheza Bajwa
-- Age: 16
+- Age: 17
 - Birthday: June 15th, 2004
 - School: East Brunswick High School
+- Committed to Rutgers University-New Brunswick for Mechanical Engineering and am a part of the Engineering Honors Academy
 
 ![Picture of Sheza](20211118_233326_2.jpg)
 
