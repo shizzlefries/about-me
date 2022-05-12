@@ -14,8 +14,10 @@
 ## **Notable Moments:**
 >Recieved third place in javelin on Track and Field day
 
->Discovered two asteroids in Asteroid CLub
+>Discovered two asteroids in Asteroid Club
 
 >Represented my school at the Greater Middlesex Conference's (GMC) annual competition for discus in 8th grade for track and field
 
 >Code Club's leader of Girls Who Code in 11th grade
+
+>Part of Astraea Robotics (FRC 6897) Mechanical Subteam
