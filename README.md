@@ -4,7 +4,7 @@
 - Birthday: June 15th, 2004
 - School: East Brunswick High School
 
-![Picture of Sheza](b8yTMU5A_345x518.jpeg)
+![Picture of Sheza](20211118_233326_2.jpg)
 
 ## **Social Media Links:**
 - [Instagram](https://www.instagram.com/sheza.36/)
