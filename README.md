@@ -18,6 +18,6 @@
 
 >Represented my school at the Greater Middlesex Conference's (GMC) annual competition for discus in 8th grade for track and field
 
->Code Club's leader of Girls Who Code in 11th grade
-
 >Part of Astraea Robotics (FRC 6897) Mechanical Subteam
+
+>Have over 100 hours of volunteering from the past two years
